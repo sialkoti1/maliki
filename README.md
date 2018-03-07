@@ -1,2 +1,0 @@
-# maliki
-nohting
